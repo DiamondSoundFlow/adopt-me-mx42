@@ -1,4 +1,4 @@
-
+adopt me instant Script offers the most advanced adopt me Script, with infinite resources and anti-ban. Perfect for dominating any match.
 
 
 
